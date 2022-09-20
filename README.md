@@ -1,4 +1,4 @@
-# [Név]
+# [Berky Dániel]
 
 ## Hogyan kezdj neki?
 
